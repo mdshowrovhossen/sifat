@@ -1,0 +1,2 @@
+# sifat
+Assalamu Alaikum
